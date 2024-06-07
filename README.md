@@ -1,4 +1,13 @@
-## Hi there 👋
+"Currently I just want peace"
+MEU NOME É PEDRO e eu sou uma pessoa legal:)
+
+![](https://media1.tenor.com/m/AapKRNOpG6cAAAAC/ohno-meme-monkey-ohno.gif)
+
+
+
+
+
+
 
 <!--
 **26PedroHenrique/26PedroHenrique** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
