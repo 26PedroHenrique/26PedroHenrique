@@ -1,5 +1,6 @@
-"Currently I just want peace"
-MEU NOME É PEDRO e eu sou uma pessoa legal:)
+**-Currently I just want peace**
+
+**-MEU NOME É PEDRO e eu sou uma pessoa legal:)**
 
 ![](https://media1.tenor.com/m/AapKRNOpG6cAAAAC/ohno-meme-monkey-ohno.gif)
 
